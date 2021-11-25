@@ -3,6 +3,7 @@
 
 **Renovated with Friends and Family in Mind**
 
+
 We bought this weekend getaway beach house while living in Northern Virginia. We chose it for its 1.5 hour distance from the city, direct access to the Potomac River and for the small town charm of Colonial Beach, a golf-cart community.
 The house had a lot of potential. Throughout the next 2 years, that potential was fully realized with the help of a local contractor who specializes in beach cottage renovations from the early 1900s. The house was lifted 10 feet and a full floor built underneath – allowing for a full garage the a 400 square foot addition above it, a permitted accessory dwelling unit, and an incredible screened-in porch.
 But there’s more to a house then just the way it looks – check out the extensive list of upgrades made to the exterior and interior systems.
