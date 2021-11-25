@@ -10,7 +10,7 @@ But there’s more to a house then just the way it looks – check out the exten
 700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
 
 
-700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
+###700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
 ![porch_tempimageh3kppn](https://user-images.githubusercontent.com/94854538/143494858-cb06e8db-8cf3-43eb-98a2-f2a5468fcaa5.jpg)
 
 ![porch_tempimage2ayeby](https://user-images.githubusercontent.com/94854538/143494851-0d35b25b-0f1b-4455-a955-9e99beddf7a4.jpg)
@@ -29,7 +29,10 @@ But there’s more to a house then just the way it looks – check out the exten
 
 
 700+ square feet of entertaining space – complete with IR heaters for the cooler months and ceiling fans for the summer. Wet bar with full size refrigerator and a half bath allows us to entertain 24+ people without ever going upstairs. The floors are a gorgeous sealed terrazzo – even in the bathroom.
-The Porch at Night
+
+###The Porch at Night
+
+![porchNT_tempimagevjy6xz](https://user-images.githubusercontent.com/94854538/143494906-e889e314-d554-4dfd-bfe9-6bb9b70f7938.jpg)
 
 ![PorchNT_1e2d3137-e49b-4d1d-a5f4-70a2740d10f1](https://user-images.githubusercontent.com/94854538/143494896-7ff2e1a7-7955-42b5-bbb9-0f5913695ab5.jpg)
 ![PorchNT_6ffb9638-8fb3-4ac6-91c6-531335a9f64d](https://user-images.githubusercontent.com/94854538/143494897-a3e68001-fa37-4910-b0c7-53bd39391504.jpg)
@@ -40,10 +43,10 @@ The Porch at Night
 ![porchNT_tempimagedmpskw](https://user-images.githubusercontent.com/94854538/143494903-cb7c28db-aa0d-4795-93f8-0124e8db96f8.jpg)
 ![porchNT_tempimagepmq85n](https://user-images.githubusercontent.com/94854538/143494904-5716c7c3-6198-4ea1-8f42-9b8b442d3cc6.jpg)
 ![porchNT_tempimageqa9j0x](https://user-images.githubusercontent.com/94854538/143494905-ca827f16-0fab-46bf-812e-5770df3ffc39.jpg)
-![porchNT_tempimagevjy6xz](https://user-images.githubusercontent.com/94854538/143494906-e889e314-d554-4dfd-bfe9-6bb9b70f7938.jpg)
 ![porchNT_tempimageyosjqo](https://user-images.githubusercontent.com/94854538/143494907-d3f73f50-8900-4cc1-8032-a5713e59410b.jpg)
 
 
+###The Second Floor
 The second floor house has a Living & Dining with Spectacular Views, three Bedrooms with Custom Closets, two Full Bathrooms
 
 ![2nd_0486be3a-aa48-4e7b-bfe8-3147b24b9254](https://user-images.githubusercontent.com/94854538/143495115-1d09406e-eeb6-4ee9-95f0-f913a7356a8c.jpg)
@@ -96,37 +99,54 @@ The second floor house has a Living & Dining with Spectacular Views, three Bedro
 ![2ndtempimagegoeult](https://user-images.githubusercontent.com/94854538/143495186-0482471d-d2c2-44af-8f8b-6896de2afb18.jpg)
 
 
-Private Pier and Coastal Landscaping
+###Private Pier and Coastal Landscaping
 
-
-
-
-
-
-
-
-
-
+![Pier_img_0978](https://user-images.githubusercontent.com/94854538/143497004-bd0a3a3c-7e2e-4edb-94cb-45495ce21407.jpg)
+![Pier_img_1230](https://user-images.githubusercontent.com/94854538/143497008-be50d8b1-3888-41fa-bbe0-ee4d35b38488.jpg)
+![pier_tempimagegnxry4](https://user-images.githubusercontent.com/94854538/143497010-42fb98d5-f726-4909-8e27-36be737b25b2.jpg)
+![pier_tempimageixomdn](https://user-images.githubusercontent.com/94854538/143497012-d18e66f3-e981-48ba-ae21-7dcf37c9e5bd.jpg)
+![pier_tempimageqshj0z](https://user-images.githubusercontent.com/94854538/143497013-1ab8224d-6678-4f67-b0bb-edd3cd01b341.jpg)
+![pier_tempimageys33br](https://user-images.githubusercontent.com/94854538/143497015-a34f0ddf-f77d-48e5-a18b-36c11b19e130.jpg)
 
 “Pierfection,” our aptly named private pier on the Potomac River, is outfitted with paddleboard and kayak storage, a hand-crank lift, posts for a shade, coastal seating and solar deck lighting. We enjoy everything from sunrise coffee, to moonrise cocktails and all the water access in between. The pier is boat lift-ready.
-Customized Garage
+
+###The House
 
 
 
 
+###Customized Garage
 
-
-
-
-
-
-
-
+![Garage_img_2466](https://user-images.githubusercontent.com/94854538/143497059-365eb0a4-981c-473e-afd0-32e4ae904a17.jpeg)
+![Garage_img_2467](https://user-images.githubusercontent.com/94854538/143497061-bcfd75ef-9ff9-44e1-9f6f-cf37dd078f58.jpeg)
+![Garage_img_2468](https://user-images.githubusercontent.com/94854538/143497062-efe02bc3-8162-40ae-9a59-db92128d05f5.jpeg)
+![Garage_img_2469](https://user-images.githubusercontent.com/94854538/143497063-3a248bdb-73bd-4e56-ade0-62c8779c26b5.jpeg)
+![Garage_img_2470](https://user-images.githubusercontent.com/94854538/143497064-e061832c-0751-4965-954a-17fa9ffcc392.jpeg)
+![Garage_img_2471](https://user-images.githubusercontent.com/94854538/143497066-383607d4-0cfe-4869-b8ab-60e078589230.jpeg)
+![Garage_img_2472-2](https://user-images.githubusercontent.com/94854538/143497067-a98139e7-b6c6-48a6-b7f4-b6bb28364a06.jpeg)
+![Garage_img_2473](https://user-images.githubusercontent.com/94854538/143497069-f757f553-a55b-471a-b393-591ecfaa175d.jpeg)
+![Garage_img_2474-2](https://user-images.githubusercontent.com/94854538/143497070-83da380b-c15d-4a43-b960-baa0d0605560.jpeg)
+![Garage_img_2475](https://user-images.githubusercontent.com/94854538/143497071-a71f2a48-dcef-48ab-8491-5c430bc5d20d.jpeg)
+![Garage_img_2476](https://user-images.githubusercontent.com/94854538/143497074-0881afe4-cf9f-4559-9f7f-0339ee98ee41.jpeg)
 
 
 Store your golf cart, your tools and all your river toys in this spacious garage with electric door opener. The floor is sealed for easy cleaning and the space is outfitted with ample lighting and outlets. An exterior outlet makes it easy to charge your electric cart from inside or out. A paver path leads you from the driveway to bike storage on the side yard.
+
+###Studio Apt
 Studio Apartment with a full kitchen, laundry and a private patio
 
+![APT_2e5b8e48-e8bd-44ee-a129-158c2d2ed53c](https://user-images.githubusercontent.com/94854538/143497130-8fd868f8-91d3-440b-ae76-6d8419b3dedd.jpg)
+![Apt_0686b929-a9c5-43f5-935d-7ebb6dff7a4b](https://user-images.githubusercontent.com/94854538/143497132-83b02bec-aae0-4c31-a783-8370c8fdbe50.jpg)
+![Apt_ae431f3e-1165-4c04-96c5-c9f0175a0dd7](https://user-images.githubusercontent.com/94854538/143497133-5bb61780-6d63-4b95-a2cc-4524812eb6dd.jpg)
+![apt_tempimage6gi6sh](https://user-images.githubusercontent.com/94854538/143497134-57bd76c9-c797-4629-ae17-a6162d00e360.jpg)
+![apt_tempimagea06r3w](https://user-images.githubusercontent.com/94854538/143497135-bf40b2ca-56f5-4a08-83ab-1bf0441aaf45.jpg)
+![apt_tempimagecp8dir (1)](https://user-images.githubusercontent.com/94854538/143497139-c042aef3-9851-4dc5-86c3-393196011de6.jpg)
+![apt_tempimagecp8dir](https://user-images.githubusercontent.com/94854538/143497140-0f18ee88-a567-46a8-8a11-5b5544bb2d00.jpg)
+![apt_tempimagefgmpwo](https://user-images.githubusercontent.com/94854538/143497142-58d18560-d6e4-438d-a9f1-8446f9e67ebc.jpg)
+![apt_tempimageh8eche](https://user-images.githubusercontent.com/94854538/143497144-d0eca848-243d-45d3-be30-bf5c07a910ed.jpg)
+![apt_tempimagemw3aza](https://user-images.githubusercontent.com/94854538/143497146-8b012799-f7c0-4f22-bea3-9753df1b18dc.jpg)
+![apt_tempimageqylpyz](https://user-images.githubusercontent.com/94854538/143497148-aaff59eb-5e04-4121-a4fa-5e006b8d8623.jpg)
+![apt_tempimagetxzilw](https://user-images.githubusercontent.com/94854538/143497149-bd03bac6-497d-4175-ab2d-fc88524c8223.jpg)
 
 
 
@@ -135,18 +155,5 @@ Studio Apartment with a full kitchen, laundry and a private patio
 
 
 
-
-
-
-
-
-
-“Nearly Pierfect” is a successful short-term rental in Colonial Beach, with a 5-star rating. The apartment includes a private, fenced-in patio, a full kitchen (including dishwasher and ice maker), and full-sized laundry. We’ve hosted family and friends for extended periods of time and operated an income-generating rental in this very popular beach town.
-Interested in learning more about our renovation? Send Us an Email
-1029 Irving Ave, Colonial Beach VA
-1029Irving, Blog at WordPress.com.
-
-Renovation Pictures & Videos
-From Cottage to Beach House
 
 
