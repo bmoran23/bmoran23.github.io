@@ -30,7 +30,7 @@ But there’s more to a house then just the way it looks – check out the exten
 
 700+ square feet of entertaining space – complete with IR heaters for the cooler months and ceiling fans for the summer. Wet bar with full size refrigerator and a half bath allows us to entertain 24+ people without ever going upstairs. The floors are a gorgeous sealed terrazzo – even in the bathroom.
 
-###The Porch at Night
+### The Porch at Night
 
 ![porchNT_tempimagevjy6xz](https://user-images.githubusercontent.com/94854538/143494906-e889e314-d554-4dfd-bfe9-6bb9b70f7938.jpg)
 
@@ -46,7 +46,7 @@ But there’s more to a house then just the way it looks – check out the exten
 ![porchNT_tempimageyosjqo](https://user-images.githubusercontent.com/94854538/143494907-d3f73f50-8900-4cc1-8032-a5713e59410b.jpg)
 
 
-###The Second Floor
+### The Second Floor
 The second floor house has a Living & Dining with Spectacular Views, three Bedrooms with Custom Closets, two Full Bathrooms
 
 ![2nd_0486be3a-aa48-4e7b-bfe8-3147b24b9254](https://user-images.githubusercontent.com/94854538/143495115-1d09406e-eeb6-4ee9-95f0-f913a7356a8c.jpg)
@@ -99,7 +99,7 @@ The second floor house has a Living & Dining with Spectacular Views, three Bedro
 ![2ndtempimagegoeult](https://user-images.githubusercontent.com/94854538/143495186-0482471d-d2c2-44af-8f8b-6896de2afb18.jpg)
 
 
-###Private Pier and Coastal Landscaping
+### Private Pier and Coastal Landscaping
 
 ![Pier_img_0978](https://user-images.githubusercontent.com/94854538/143497004-bd0a3a3c-7e2e-4edb-94cb-45495ce21407.jpg)
 ![Pier_img_1230](https://user-images.githubusercontent.com/94854538/143497008-be50d8b1-3888-41fa-bbe0-ee4d35b38488.jpg)
@@ -110,12 +110,12 @@ The second floor house has a Living & Dining with Spectacular Views, three Bedro
 
 “Pierfection,” our aptly named private pier on the Potomac River, is outfitted with paddleboard and kayak storage, a hand-crank lift, posts for a shade, coastal seating and solar deck lighting. We enjoy everything from sunrise coffee, to moonrise cocktails and all the water access in between. The pier is boat lift-ready.
 
-###The House
+### The House
 
 
 
 
-###Customized Garage
+### Customized Garage
 
 ![Garage_img_2466](https://user-images.githubusercontent.com/94854538/143497059-365eb0a4-981c-473e-afd0-32e4ae904a17.jpeg)
 ![Garage_img_2467](https://user-images.githubusercontent.com/94854538/143497061-bcfd75ef-9ff9-44e1-9f6f-cf37dd078f58.jpeg)
@@ -132,7 +132,7 @@ The second floor house has a Living & Dining with Spectacular Views, three Bedro
 
 Store your golf cart, your tools and all your river toys in this spacious garage with electric door opener. The floor is sealed for easy cleaning and the space is outfitted with ample lighting and outlets. An exterior outlet makes it easy to charge your electric cart from inside or out. A paver path leads you from the driveway to bike storage on the side yard.
 
-###Studio Apt
+### Studio Apt
 Studio Apartment with a full kitchen, laundry and a private patio
 
 ![APT_2e5b8e48-e8bd-44ee-a129-158c2d2ed53c](https://user-images.githubusercontent.com/94854538/143497130-8fd868f8-91d3-440b-ae76-6d8419b3dedd.jpg)
@@ -147,13 +147,4 @@ Studio Apartment with a full kitchen, laundry and a private patio
 ![apt_tempimagemw3aza](https://user-images.githubusercontent.com/94854538/143497146-8b012799-f7c0-4f22-bea3-9753df1b18dc.jpg)
 ![apt_tempimageqylpyz](https://user-images.githubusercontent.com/94854538/143497148-aaff59eb-5e04-4121-a4fa-5e006b8d8623.jpg)
 ![apt_tempimagetxzilw](https://user-images.githubusercontent.com/94854538/143497149-bd03bac6-497d-4175-ab2d-fc88524c8223.jpg)
-
-
-
-
-
-
-
-
-
 
