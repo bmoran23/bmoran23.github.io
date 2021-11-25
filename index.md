@@ -10,22 +10,22 @@ But there’s more to a house then just the way it looks – check out the exten
 700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
 
 
-
-![1e2d3137-e49b-4d1d-a5f4-70a2740d10f1](https://user-images.githubusercontent.com/94854538/143448806-f603681f-840e-454b-96f3-e7fd01c31279.jpg)
-
 700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
+![porch_tempimageh3kppn](https://user-images.githubusercontent.com/94854538/143494858-cb06e8db-8cf3-43eb-98a2-f2a5468fcaa5.jpg)
 
 ![porch_tempimage2ayeby](https://user-images.githubusercontent.com/94854538/143494851-0d35b25b-0f1b-4455-a955-9e99beddf7a4.jpg)
+
 ![porch_tempimage389cg2](https://user-images.githubusercontent.com/94854538/143494852-7a96fd30-aa03-4ef6-a2f2-79bcc4e70ed2.jpg)
-![porch_tempimagebzuw4e](https://user-images.githubusercontent.com/94854538/143494854-2a0d895c-6510-44bd-8739-405682013cac.jpg)
+
 ![porch_tempimagedehdyo](https://user-images.githubusercontent.com/94854538/143494855-c93b6cbd-a343-4a16-aaa0-c5d0fe2dcb4e.jpg)
 ![porch_tempimagefoaedo](https://user-images.githubusercontent.com/94854538/143494856-3525cfb9-0943-42e2-8628-202bdf71c314.jpg)
-![porch_tempimageh3kppn](https://user-images.githubusercontent.com/94854538/143494858-cb06e8db-8cf3-43eb-98a2-f2a5468fcaa5.jpg)
 ![porch_tempimageldgn3e](https://user-images.githubusercontent.com/94854538/143494860-fa791c7f-e0a9-44d3-ab26-be3a8daa7602.jpg)
 ![porch_tempimagelgxxtw](https://user-images.githubusercontent.com/94854538/143494861-9b7e1bb2-b68c-4265-8802-c14dbb88b944.jpg)
-![porch_tempimagelspbs1](https://user-images.githubusercontent.com/94854538/143494862-6a6118b7-f198-4add-84e3-5303bd4bf6e1.jpg)
+
 ![porch_tempimagenfdtuk](https://user-images.githubusercontent.com/94854538/143494863-e5e896c3-e4fa-4430-b71f-e49420b74ceb.jpg)
 ![porch_tempimagerewfz5](https://user-images.githubusercontent.com/94854538/143494864-89f3ad3c-e65a-41d2-99c3-2749d989bbdf.jpg)
+![porch_tempimagebzuw4e](https://user-images.githubusercontent.com/94854538/143494854-2a0d895c-6510-44bd-8739-405682013cac.jpg)
+![porch_tempimagelspbs1](https://user-images.githubusercontent.com/94854538/143494862-6a6118b7-f198-4add-84e3-5303bd4bf6e1.jpg)
 
 
 700+ square feet of entertaining space – complete with IR heaters for the cooler months and ceiling fans for the summer. Wet bar with full size refrigerator and a half bath allows us to entertain 24+ people without ever going upstairs. The floors are a gorgeous sealed terrazzo – even in the bathroom.
