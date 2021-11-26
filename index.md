@@ -7,7 +7,6 @@
   
 </p>
 
-Normal text
 
 
 We bought this weekend getaway beach house from the previous owners who made major upgrades to the house detailed here: TBD
