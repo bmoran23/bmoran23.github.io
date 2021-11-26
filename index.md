@@ -2,8 +2,8 @@
 
 **Chapter 2
 
-<p align="center">
-  **Chapter 2
+<p style="font-size: 24px; color: #393939" align="center">
+  Chapter 2
   
 </p>
 
