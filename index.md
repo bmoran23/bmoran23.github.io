@@ -1,8 +1,21 @@
 ## Welcome to our Beach Shack 
-<p align="center">
-    
+
 **Chapter 2
+
+Normal Text
+
+<p align="center">
+  <b>Some Links:</b><br>
+  <a href="#">Link 1</a> |
+  <a href="#">Link 2</a> |
+  <a href="#">Link 3</a>
+  <br><br>
+  <img src="http://s.4cdn.org/image/title/105.gif">
 </p>
+
+Normal text
+
+
 We bought this weekend getaway beach house from the previous owners who made major upgrades to the house detailed here: TBD
 
 In short, with the help of a local contractor who specializes in beach cottage renovations from the early 1900s. The house was lifted 10 feet and a full floor built underneath – allowing for a full garage the a 400 square foot addition above it, a permitted accessory dwelling unit, and an incredible screened-in porch.
