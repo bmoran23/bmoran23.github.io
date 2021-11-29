@@ -1,7 +1,5 @@
 ## Welcome to our Beach Shack 
 
-**Chapter 2
-
 <p style="font-size: 24px; color: #393939" align="center">
   Chapter 2
   
@@ -17,7 +15,7 @@ But there’s more to a house then just the way it looks – check out the exten
 700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
 
 
-###700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
+### 700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
 ![porch_tempimageh3kppn](https://user-images.githubusercontent.com/94854538/143494858-cb06e8db-8cf3-43eb-98a2-f2a5468fcaa5.jpg)
 
 ![porch_tempimage2ayeby](https://user-images.githubusercontent.com/94854538/143494851-0d35b25b-0f1b-4455-a955-9e99beddf7a4.jpg)
