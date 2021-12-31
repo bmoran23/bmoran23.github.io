@@ -1,21 +1,19 @@
 # Welcome to our River Shack 
 
 <p style="font-size: 24px; color: #393939" align="center">
-  Chapter 2
   
 </p>
 
 
 
-We bought this weekend getaway beach house from the previous owners who made major upgrades to the house detailed here: TBD
+We have always though about having a weekend getaway on the water.   For some time we had been casually looking for a place that felt right for our rather electic tastes...and it could not be more than 2 hours from DC.  The first summer of the pandemic, we (that would Liz as Brian had been several times) discovered the Northern Neck of Virginia, which is between the Potomac and Rappahannock Rivers.  In the Northern Neck, we focsed on Colonial Beach as we could take get there in 90 minutes and did not have to drive 95 south, which we all know is aweful during the summer.  
 
-In short, with the help of a local contractor who specializes in beach cottage renovations from the early 1900s. The house was lifted 10 feet and a full floor built underneath – allowing for a full garage the a 400 square foot addition above it, a permitted accessory dwelling unit, and an incredible screened-in porch.
+We bought our River Shack the week between Christamas and New Years 2021.  
 
-But there’s more to a house then just the way it looks – check out the extensive list of upgrades made to the exterior and interior systems.
-700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
+It has a unique history we would like to share.  The previous owners, working with a local architect and contractor who specialize in beach cottages, turned an almost 100 year old beach cottages into a beatiful two story house.  The house was lifted 10 feet and a full floor built underneath, including an amazing porch.  The fun of a weekend get away (only 90 minutes from Arlington) is sharing it with friends.  We hope you come visit.
 
 
-### 700+ Square Foot 3-Season Porch with Wet Bar and Half Bath
+### 3-Season Porch
 ![porch_tempimageh3kppn](https://user-images.githubusercontent.com/94854538/143494858-cb06e8db-8cf3-43eb-98a2-f2a5468fcaa5.jpg)
 
 ![porch_tempimage2ayeby](https://user-images.githubusercontent.com/94854538/143494851-0d35b25b-0f1b-4455-a955-9e99beddf7a4.jpg)
@@ -25,21 +23,11 @@ But there’s more to a house then just the way it looks – check out the exten
 ![porch_tempimagedehdyo](https://user-images.githubusercontent.com/94854538/143494855-c93b6cbd-a343-4a16-aaa0-c5d0fe2dcb4e.jpg)
 ![porch_tempimagefoaedo](https://user-images.githubusercontent.com/94854538/143494856-3525cfb9-0943-42e2-8628-202bdf71c314.jpg)
 ![porch_tempimageldgn3e](https://user-images.githubusercontent.com/94854538/143494860-fa791c7f-e0a9-44d3-ab26-be3a8daa7602.jpg)
-![porch_tempimagelgxxtw](https://user-images.githubusercontent.com/94854538/143494861-9b7e1bb2-b68c-4265-8802-c14dbb88b944.jpg)
-
 ![porch_tempimagenfdtuk](https://user-images.githubusercontent.com/94854538/143494863-e5e896c3-e4fa-4430-b71f-e49420b74ceb.jpg)
-![porch_tempimagerewfz5](https://user-images.githubusercontent.com/94854538/143494864-89f3ad3c-e65a-41d2-99c3-2749d989bbdf.jpg)
-![porch_tempimagebzuw4e](https://user-images.githubusercontent.com/94854538/143494854-2a0d895c-6510-44bd-8739-405682013cac.jpg)
-![porch_tempimagelspbs1](https://user-images.githubusercontent.com/94854538/143494862-6a6118b7-f198-4add-84e3-5303bd4bf6e1.jpg)
-
-
-700+ square feet of entertaining space – complete with IR heaters for the cooler months and ceiling fans for the summer. Wet bar with full size refrigerator and a half bath allows us to entertain 24+ people without ever going upstairs. The floors are a gorgeous sealed terrazzo – even in the bathroom.
 
 ### The Porch at Night
 
 ![porchNT_tempimagevjy6xz](https://user-images.githubusercontent.com/94854538/143494906-e889e314-d554-4dfd-bfe9-6bb9b70f7938.jpg)
-
-![PorchNT_1e2d3137-e49b-4d1d-a5f4-70a2740d10f1](https://user-images.githubusercontent.com/94854538/143494896-7ff2e1a7-7955-42b5-bbb9-0f5913695ab5.jpg)
 ![PorchNT_6ffb9638-8fb3-4ac6-91c6-531335a9f64d](https://user-images.githubusercontent.com/94854538/143494897-a3e68001-fa37-4910-b0c7-53bd39391504.jpg)
 ![PorchNT_55a3f1c1-7f08-4a82-9eee-492567d2fe87](https://user-images.githubusercontent.com/94854538/143494899-128f43b1-a3fa-4aa4-9d06-63aab2d0a701.jpg)
 ![PorchNT_533a80cd-fae2-4241-9fce-a52fd1d74617](https://user-images.githubusercontent.com/94854538/143494900-ccd7f35d-28c1-411f-98c3-ab5130462cce.jpg)
@@ -52,11 +40,10 @@ But there’s more to a house then just the way it looks – check out the exten
 
 
 ### The Second Floor
-The second floor house has a Living & Dining with Spectacular Views, three Bedrooms with Custom Closets, two Full Bathrooms
+The second floor is where we live. The great room looks out on the river and we have three bedrooms for all our guests. 
 
 ![2nd_0486be3a-aa48-4e7b-bfe8-3147b24b9254](https://user-images.githubusercontent.com/94854538/143495115-1d09406e-eeb6-4ee9-95f0-f913a7356a8c.jpg)
 ![2nd_tempimage0md4u9](https://user-images.githubusercontent.com/94854538/143495117-e5191a86-111c-43c3-a3a4-c163744551f1.jpg)
-![2nd_tempimage0oi2fj](https://user-images.githubusercontent.com/94854538/143495118-96aa60ee-49e9-4886-9c2d-e8ccda2ebb63.jpg)
 ![2nd_tempimage0pduze](https://user-images.githubusercontent.com/94854538/143495119-0a8ad7da-3951-4e80-bf53-dbd1d7cee1d8.jpg)
 ![2nd_tempimage1wmkvc](https://user-images.githubusercontent.com/94854538/143495120-c949576e-e865-4772-ad09-4278435210ad.jpg)
 ![2nd_tempimage4azcma](https://user-images.githubusercontent.com/94854538/143495122-bb76f444-94ba-453c-a94d-5590339a0658.jpg)
@@ -140,6 +127,7 @@ Store your golf cart, your tools and all your river toys in this spacious garage
 ### Studio Apt
 Studio Apartment with a full kitchen, laundry and a private patio
 
+![2nd_tempimage0oi2fj](https://user-images.githubusercontent.com/94854538/143495118-96aa60ee-49e9-4886-9c2d-e8ccda2ebb63.jpg)
 ![APT_2e5b8e48-e8bd-44ee-a129-158c2d2ed53c](https://user-images.githubusercontent.com/94854538/143497130-8fd868f8-91d3-440b-ae76-6d8419b3dedd.jpg)
 ![Apt_0686b929-a9c5-43f5-935d-7ebb6dff7a4b](https://user-images.githubusercontent.com/94854538/143497132-83b02bec-aae0-4c31-a783-8370c8fdbe50.jpg)
 ![Apt_ae431f3e-1165-4c04-96c5-c9f0175a0dd7](https://user-images.githubusercontent.com/94854538/143497133-5bb61780-6d63-4b95-a2cc-4524812eb6dd.jpg)
