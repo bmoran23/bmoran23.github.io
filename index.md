@@ -6,11 +6,11 @@
 
 
 
-We have always though about having a weekend getaway on the water.   For some time we had been casually looking for a place that felt right for our rather electic tastes...and it could not be more than 2 hours from DC.  The first summer of the pandemic, we (that would Liz as Brian had been several times) discovered the Northern Neck of Virginia, which is between the Potomac and Rappahannock Rivers.  In the Northern Neck, we focsed on Colonial Beach as we could take get there in 90 minutes and did not have to drive 95 south, which we all know is aweful during the summer.  
+We have always thought about having a weekend getaway on the water.   For some time we had been casually looking for a place that felt right for our rather eclectic tastes...and it could not be more than 2 hours from DC.  The first summer of the pandemic, we (that would Liz as Brian had been several times) discovered the Northern Neck of Virginia, which is between the Potomac and Rappahannock Rivers.  In the Northern Neck, we focused on Colonial Beach as we could take get there in 90 minutes and did not have to drive 95 south, which we all know is awful during the summer.  
 
-We bought our River Shack the week between Christamas and New Years 2021.  
+We bought our River Shack the week between Christmas and New Years 2021.  
 
-It has a unique history we would like to share.  The previous owners, working with a local architect and contractor who specialize in beach cottages, turned an almost 100 year old beach cottages into a beatiful two story house.  The house was lifted 10 feet and a full floor built underneath, including an amazing porch.  The fun of a weekend get away (only 90 minutes from Arlington) is sharing it with friends.  We hope you come visit.
+It has a unique history we would like to share.  The previous owners, working with a local architect and contractor who specialize in beach cottages, turned an almost 100 year old beach cottages into a beautiful two story house.  The house was lifted 10 feet and a full floor built underneath, including an amazing porch.  The fun of a weekend get away (only 90 minutes from Arlington) is sharing it with friends.  We hope you come visit.
 
 
 ### 3-Season Porch
