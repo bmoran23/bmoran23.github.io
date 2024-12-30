@@ -99,7 +99,7 @@ Studio Apartment with a full kitchen, laundry and a private patio
 ![apt_tempimageqylpyz](https://user-images.githubusercontent.com/94854538/143497148-aaff59eb-5e04-4121-a4fa-5e006b8d8623.jpg)
 ![apt_tempimagetxzilw](https://user-images.githubusercontent.com/94854538/143497149-bd03bac6-497d-4175-ab2d-fc88524c8223.jpg)
 
-### Solar Panals
+### Solar Panels
 In 2024 we added solar panels
 ![1029Solar6](https://github.com/user-attachments/assets/563e09b0-72f1-45cc-b877-73c229b15b28)
 ![1029Solar5](https://github.com/user-attachments/assets/b12c9e31-2358-49c3-9fab-d83d9f156565)
