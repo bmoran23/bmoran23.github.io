@@ -17,4 +17,4 @@ Spats look like this. This spat picture is from August.
 It is important to support resturants that work with the CBF or other organizations like the [Friends of the Rappahannock](https://riverfriends.org/) to recycle oysters so spats have a place to grow.
 
 By December the spats were little oysters.
-![IMG_7093](https://github.com/user-attachments/assets/1db99fae-729a-4745-a556-2874ce07c857)
+![SmallOysterDec 2024IMG_7093](https://github.com/user-attachments/assets/9775d13d-f311-4740-b2b4-34037f2f1243)
