@@ -1,4 +1,4 @@
-<pre> ## [Home](/index.md)          [Oysters](/OysterGarden.md) </pre>
+## [Home](/index.md)                [Oysters](/OysterGarden.md) 
 
 # Welcome to our River Shack 
 
